@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pavithra-k20cs29
+- 👋 Hi, I’m Pavithra!
 - 👀 I’m interested in Codings, Programming.
 - 🌱 I’m currently learning FULL STACK at KGISL Micro college in coimbatore .
 - 💞️ I’m a Jobseeker in IT Field.
